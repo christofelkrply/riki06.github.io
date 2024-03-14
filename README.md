@@ -1,0 +1,1 @@
+# riki06.github.io
